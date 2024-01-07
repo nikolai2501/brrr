@@ -1,1 +1,1 @@
-﻿all haill arkoos
+DOnt haill arkoos
